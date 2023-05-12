@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Xanbjorn
-- 👀 I’m interested in anime, cospklay and dragons
+- 👀 I’m interested in anime, cosplay and dragons
 - 🌱 I’m currently obessed with Attack on Titan, Soul Eater and Kekkai Sensen
 - 💞️ I’m looking to learn to make more friends
 - 📫 How to reach me on Tik Tok @dwmadeathsythe
